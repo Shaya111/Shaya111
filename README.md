@@ -2,4 +2,4 @@
 - 👀 I’m interested in coding.
 - 🌱 I’m currently learning code.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me +1 516-416-1002 or shayakreddy@gmail.com
+- 📫 How to reach me shayakreddy@gmail.com
